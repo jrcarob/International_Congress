@@ -1,2 +1,2 @@
-# II International Congress on Gender and Cultural Education
-II Congreso Internacional de Educación Intercultural y de Género
+# XV International Congress on Education and New Learning Technologies 2023 (EDULEARN)
+XV 3rd - 5th July 2023
